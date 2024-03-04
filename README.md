@@ -1,1 +1,1 @@
-a human being 
+mortyick sanswish = an idot
